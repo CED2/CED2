@@ -28,7 +28,7 @@
 从今天起，我的性命交付于草帽海贼团的路飞船长，决不拖大家后腿，粉身碎骨 脑肝涂地！——黄泉风起热血寒...天冷了，请小心—掠之歌 · 吹雪斩！
 
 
-[百度]（https://github.com/CED2/CED2/blob/main/README.md）
+[id]:https://github.com/CED2/CED2/blob/main/README.md "我的博客”
 
 
 2021-1-20————D.
