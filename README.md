@@ -28,13 +28,10 @@
 从今天起，我的性命交付于草帽海贼团的路飞船长，决不拖大家后腿，粉身碎骨 脑肝涂地！——黄泉风起热血寒...天冷了，请小心—掠之歌 · 吹雪斩！
 
 
-[百度]：https://jingyan.baidu.com/article/aa6a2c1420a9404c4c19c4a5.html
+[百度]（https://www.baidu.com/）
 
 
-[百度][https://jingyan.baidu.com/article/aa6a2c1420a9404c4c19c4a5.html]
-
-
-2021-1-18————D.
+2021-1-20————D.
 
 
 
