@@ -30,6 +30,8 @@
 
 [id]:https://github.com/CED2/CED2/blob/main/README.md "我的博客”
 
+[百度](http://baidu.com)
+
 
 2021-1-20————D.
 
